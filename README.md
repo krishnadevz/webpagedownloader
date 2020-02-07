@@ -8,6 +8,6 @@ just type your webpage link and download the file/img/png etc or any file you ca
 
 * **Krishna kakade**  - [krishnadevz](https://github.com/krishnadevz)
 <b>Follow Me On twitter For regular Updates 
-<a href="https://twitter.com/krishnadevz" target_blank="" krishnakakade</a>
+<a href="https://twitter.com/krishnadevz">krishnadevz</a>
  <br>
 # Thank You For Reaching here God bless Peace👋🙏
